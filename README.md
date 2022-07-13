@@ -16,8 +16,6 @@ Su contraseña:
 
 
 
-El Canvas 7.26 Sin Password y al completo: YaCan-VaGa.zip = YagaCanva
-
 
 
 
